@@ -1,0 +1,2 @@
+# preynavibayes
+SISITEM CERDAS
